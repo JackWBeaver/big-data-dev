@@ -13,6 +13,6 @@ My hometown in St Joseph, MO which is a town not too far south of Maryville. I a
 I would like to do something in Data Analytics after I graduate, but I am open to looking at multiple options once I get my undergraduate degree. 
 
 ## Links
-Take a look at my LinkedIn profile: https://www.linkedin.com/in/jack-beaver-427199193/
+Take a look at my LinkedIn profile and lets connect! https://www.linkedin.com/in/jack-beaver-427199193/
 
 ![Selfie](Selfie.jpg)
