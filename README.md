@@ -15,4 +15,5 @@ I would like to do something in Data Analytics after I graduate, but I am open t
 ## Links
 Take a look at my LinkedIn profile and lets connect! https://www.linkedin.com/in/jack-beaver-427199193/
 
+Here is a picture of myself:
 ![Selfie](Selfie.jpg)
